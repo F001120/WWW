@@ -1,0 +1,1 @@
+The attachment provides various types of current internet frauds, such as fraud through tasking, loan fraud, "sacrifice pig" scams, gambling fraud, and many others. It contains approximately 80,000 website link information.
